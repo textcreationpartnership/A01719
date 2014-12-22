@@ -35,24 +35,26 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Eight sermons, vpon the first foure chapters, and part of the fift, of Ecclesiastes Preached at Maul
+
+1. TO THE RIGHT Honourable, and vertuous Lady, the Lady Anne, Counteſſe of Warwike.
+
 #####Body#####
+The first Sermon.Eccleſiaſtes. Chap. 1.THe wordes of Eccleſiaſtes, the ſonne of Dauid, king in Ieruſ
+    _ The first Sermon.
 
-1. The first Sermon.
+    _ The ſecond Sermon.
 
-1. The ſecond Sermon.
+    _ The thirde Sermon.
 
-1. The thirde Sermon.
+    _ The fourth Sermon.
 
-1. The fourth Sermon.
+    _ The fifth Sermon.
 
-1. The fifth Sermon.
+    _ The ſixth Sermon.
 
-1. The ſixth Sermon.
+    _ The ſeuenth Sermon.
 
-1. The ſeuenth Sermon.
-
-1. The eight Sermon.
+    _ The eight Sermon.
 
 **Types of content**
 
